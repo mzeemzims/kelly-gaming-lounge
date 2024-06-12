@@ -1,3 +1,3 @@
-# mboka
-ainapressure
-ni god sku zote
+ KELLY GAMING LOUNGE
+This is gaming company
+registration is totally free
